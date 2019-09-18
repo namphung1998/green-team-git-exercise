@@ -1,6 +1,6 @@
-# Cat Of Dawn 
+# Cat Of Dawn
 
-### Some generic description...
+### Follow our hero to the edge of dawn...
 
 ## 1. (Nam)
 
