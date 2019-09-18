@@ -1,6 +1,6 @@
 # Cat Of Dawn
 
-### Follow our hero to the edge of dawn...
+### Follow our hero to the edge of dawn... 
 
 ## 1. Chapter 1 (from catitsum)
 
